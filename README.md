@@ -39,11 +39,11 @@ What are some traditional Onam games
 What is the significance of the Onam boat races
 What is your favorite memory from your reign
 How do you feel about your legacy
-What is your message to the people of Kerala
-Do you have any regrets
-What do you enjoy most about your visits during Onam
-How do you stay connected with your followers
-What do you hope for Kerala's future
-What was the most challenging part of your rule
-How do you view the changes in Kerala over the years
-What do you wish people would remember most about you
+What is your message to the people of Kerala?
+Do you have any regrets?
+What do you enjoy most about your visits during Onam?
+How do you stay connected with your followers?
+What do you hope for Kerala's future?
+What was the most challenging part of your rule?
+How do you view the changes in Kerala over the years?
+What do you wish people would remember most about you?
